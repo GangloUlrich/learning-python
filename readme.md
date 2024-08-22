@@ -1,0 +1,1 @@
+https://www.coodemaroc.com/2021/09/python.html
